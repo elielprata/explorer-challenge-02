@@ -1,4 +1,4 @@
-# **EXPLORER 2023**
+# **Rocket Sect - Explorer 2023**
 
 ## Sobre
 
